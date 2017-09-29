@@ -1,0 +1,4 @@
+- How polar bares death rate relates to wolfs in yellow stone
+- who controlls the north pole
+- should ships be allowed there
+- should people get to drill for oil?
